@@ -1,0 +1,1 @@
+# seminarioEstrutura2023
